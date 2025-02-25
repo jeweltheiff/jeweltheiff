@@ -1,5 +1,14 @@
 ## Hi there 👋
 
+˚⟡⊰⋆::gem::⋆⊱⟡˚ [Strawpage](https://moximon.straw.page) ., [Atabook](https://moiemon.atabook.org/)
+
+![amy](https://github.com/user-attachments/assets/e12fa712-96c8-4fae-991c-a42d9537c84c)
+
+
+ ╰┈➤ [Pronouns](https://en.pronouns.page/@glaxianmoxn)
+
+
+
 <!--
 **jeweltheiff/jeweltheiff** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
