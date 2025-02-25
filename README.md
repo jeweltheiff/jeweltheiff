@@ -1,4 +1,4 @@
-## Hi there 👋
+
 
 ˚⟡⊰⋆::gem::⋆⊱⟡˚ [Strawpage](https://moximon.straw.page) ., [Atabook](https://moiemon.atabook.org/)
 
