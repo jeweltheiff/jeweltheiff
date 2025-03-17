@@ -6,6 +6,8 @@
 
 
  ╰┈➤ [Pronouns](https://en.pronouns.page/@glaxianmoxn)
+ 
+![](https://komarev.com/ghpvc/?username=jewelthieff&color=blueviolet)
 
 
 
